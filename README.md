@@ -55,3 +55,5 @@ Emplear normas APA.
 RUBRICA
 
 ![](https://github.com/doalulema/InformeTarea/blob/main/Tarea.png)
+
+\item $$\int_{1}^{2} (\frac{v^3}{v^4}+\frac{3v^6}{v^4})dv$$
