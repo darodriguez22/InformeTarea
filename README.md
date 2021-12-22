@@ -55,3 +55,33 @@ Emplear normas APA.
 RUBRICA
 
 ![](https://github.com/doalulema/InformeTarea/blob/main/Tarea.png)
+
+
+# Lab 4#
+
+![imagen](https://user-images.githubusercontent.com/93798427/147125470-a0cc1455-63a8-418f-9476-5a2d464786b6.png)4
+
+
+![imagen](https://user-images.githubusercontent.com/93798427/147128882-ad6342f0-551d-4111-8e25-f9e74540af2b.png)
+
+![imagen](https://user-images.githubusercontent.com/93798427/147128919-aef51267-eca5-42d6-abb1-1a6ba65d89a0.png)
+
+![imagen](https://user-images.githubusercontent.com/93798427/147128958-c007c68b-7d3e-47d7-8605-f2402eba6153.png)
+
+
+![imagen](https://user-images.githubusercontent.com/93798427/147129041-9a9f7460-8a6a-43a1-9757-f8dae1d0247d.png)
+
+![imagen](https://user-images.githubusercontent.com/93798427/147129090-f00b8fa7-7ad4-4e68-924c-193422610a5d.png)
+
+![imagen](https://user-images.githubusercontent.com/93798427/147129148-ae501cf6-4caa-4559-a475-24d254161dd0.png)
+
+![imagen](https://user-images.githubusercontent.com/93798427/147129174-1ef1f83d-8375-4186-af8b-e8edc3ef0df4.png)
+
+![imagen](https://user-images.githubusercontent.com/93798427/147129182-128bf792-feeb-4b5a-a710-823dc1834ae5.png)
+
+![imagen](https://user-images.githubusercontent.com/93798427/147129205-eaefd287-8d82-495c-a1c8-86bbf34a120d.png)
+
+
+
+
+
